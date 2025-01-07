@@ -1,0 +1,1 @@
+Turkcell Geleceği Yazanlar bünyesi altındaki Temel Network eğitimini başarıyla ve sertifikayla tamamladım. Buradaki notlar ise her bir ders için hocamızın notlarının kendimce yorumlanmış halidir. İnternetten ilgili görseller de ekleyerek bu notların içeriğini daha da güçlendirmeye çalıştım. Eğitim içerisindeki notlar Hasan Alperen Selçuk isimli eğitmene aittir. 
